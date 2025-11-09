@@ -80,7 +80,7 @@ Slide the **Reverse Detune Rate** to watch anomalies vanish and the cosmos conve
 
 ## Author
 
-**snowbellsan**  
+**snowbellsan**  https://x.com/Jackpot_jack
 *Simulator Archaeologist | AI Conductor | One-sentence Philosopher*
 
 > “I said: *‘Remove uncertainty and quantum noise.’*  
